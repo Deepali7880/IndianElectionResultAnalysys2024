@@ -1,0 +1,1 @@
+[INDIA ELECTION RESULT ANALYSIS 2024.pdf](https://github.com/user-attachments/files/32362999/INDIA.ELECTION.RESULT.ANALYSIS.2024.pdf)
